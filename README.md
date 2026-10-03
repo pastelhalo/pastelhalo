@@ -24,7 +24,7 @@
   
  ${\textsf{\color{#7a7882}20 y.o}}$
  
- ${\textsf{\color{#b7b7eb} genshin⠀player⠀since⠀april 2021⠀and⠀wrio⠀yume⠀since⠀december⠀2023}}$
+ ${\textsf{\color{#b7b7eb} hsr⠀player⠀since⠀release⠀and⠀sunday⠀yume⠀since⠀november⠀2024}}$
 
   ${\textsf{\color{#7a7882} huge⠀cudcomf⠀,⠀c*h⠀freely⠀!!⠀do⠀NOT⠀cover⠀unless⠀you're⠀cuddling }}$
 
