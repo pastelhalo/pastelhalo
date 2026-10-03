@@ -36,10 +36,9 @@
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
- <img width="214" height="122" alt="Untitled218_20260925032128" src="https://github.com/user-attachments/assets/e1316ec6-9f1d-4baa-b9ce-93bbf09a20d1" /> <a href=https://yourlocaljayjay.straw.page/> <img width="315" height="102" alt="Untitled218_20260925032206" src="https://github.com/user-attachments/assets/01f3e353-4b6c-486e-9958-4b50e84de871" />
+ <img width="300" height="221" alt="Untitled230_20261003233332" src="https://github.com/user-attachments/assets/f90bb4be-5e6d-45cc-9197-c97b204d46ab" /> <a href=https://yourlocaljayjay.straw.page/> <img width="400" height="204" alt="Untitled230_20261003233359" src="https://github.com/user-attachments/assets/2c814d1b-31e0-4a92-ac81-f60babe1a2ba" />
 
   </a>
 
-<div align="center"> <img width="2048" height="819" alt="tumblr_468502e4ce5062112787e98918e1711a_5ca79a69_2048" src="https://github.com/user-attachments/assets/734f9b2e-8fa0-44e0-ac90-965d6ae37ec9" />
-
+<div align="center"> <img width="2048" height="819" alt="tumblr_468502e4ce5062112787e98918e1711a_5ca79a69_2048" src="https://github.com/user-attachments/assets/73f35b01-a55a-437b-823c-8757a0e63cdd" />
 <p align="center"> <sub> ${\textsf{\color{#b7b7eb} graphs + pfp made by @abudasima on tumblr}}$ </sub>
