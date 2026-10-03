@@ -32,7 +32,7 @@
 
 </details>
   
-<p align="center"> ${\textsf{\color{#b7b7eb} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
+<p align="center"> ${\textsf{\color{#b7b7eb} "if you are born weak, which god should you turn to for solace?" }}$
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
@@ -41,4 +41,4 @@
   </a>
 
 <div align="center"> <img width="2048" height="819" alt="tumblr_468502e4ce5062112787e98918e1711a_5ca79a69_2048" src="https://github.com/user-attachments/assets/73f35b01-a55a-437b-823c-8757a0e63cdd" />
-<p align="center"> <sub> ${\textsf{\color{#b7b7eb} graphs + pfp made by @abudasima on tumblr}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#7a7882} graphs + pfp made by @abudasima on tumblr}}$ </sub>
